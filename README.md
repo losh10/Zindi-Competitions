@@ -66,7 +66,7 @@ I’d like to thank the Zindi community for providing such amazing opportunities
 If you have any questions, suggestions, or just want to connect, feel free to reach out to me via:
 
 - **Email**: [tonderaisinamai@gmail.com]
-- **LinkedIn**: [[Your LinkedIn Profile](https://www.linkedin.com/in/tonderai-sinamai-390474184/)]
+- **LinkedIn**: [[Tonderai Sinamai](https://www.linkedin.com/in/tonderai-sinamai-390474184/)]
 
 Happy coding and good luck with your Zindi competitions! 🚀
 
